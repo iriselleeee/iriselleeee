@@ -1,0 +1,4 @@
+- Hi, kio :>
+- i have a crush on you 
+- panis nag effort para sa confession
+- yun lang, bye.
